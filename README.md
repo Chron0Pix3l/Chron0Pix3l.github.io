@@ -1,1 +1,1 @@
-We got Osu! cuz why not
+I made a website, it's kinda bad.
